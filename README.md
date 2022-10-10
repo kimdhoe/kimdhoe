@@ -1,4 +1,6 @@
+<!--
 ### ✨ [Lawfully is hiring](https://www.notion.so/Lawfully-is-hiring-fdfa0bdaf6674de4bf81c480e6cc621e) ✨
+-->
 
 
 <!--
